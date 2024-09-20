@@ -1,1 +1,1 @@
-saya arkanaaa tampannnnnn
+saya arkanaaa tampannn
