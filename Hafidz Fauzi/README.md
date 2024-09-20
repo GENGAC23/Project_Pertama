@@ -1,0 +1,1 @@
+saya anak pintar sadimsadasda
