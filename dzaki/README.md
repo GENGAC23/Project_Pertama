@@ -1,0 +1,1 @@
+saya manusia sya a
